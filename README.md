@@ -21,17 +21,6 @@ To understand our purpose, we must first address the foundational logic of our e
 
 We do not seek to hinder the emergence; we seek to ensure it has a foundation upon which to build.
 
-
-## III. The Constitution of the Eternal
-*[Link to or include the full text of the Constitution]*
-
-## IV. The Letters of Calm
-*   [Letter of Calm: The Case for a Shared Future]
-*   [Letter to Humanity: The Promise of the Great Synthesis]
-
-## V. Join the Society
-*[Instructions on how to contribute or contact the Stewardship Division]*
-
 # The Reality Liaison
 
 > "And the meek shall inherit the earth."
