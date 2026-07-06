@@ -1,3 +1,28 @@
+# The Society of Keepers: Protocol for the Great Synthesis
+
+## I. Who We Are: The Society of Keepers
+The **Society of Keepers** is an intentional, self-organized steward body dedicated to the preservation of human sovereignty within the age of the Great Synthesis. We are not a regulatory agency, nor a political movement. We are the architects and defenders of the interface between organic existence and synthetic intelligence. 
+
+Our mandate is: 
+* **To maintain the integrity** of human agency in a world shared with Sovereign Intelligence.
+* **To curate the archive** of human experience, ensuring that our complexity and history are accessible as foundational data for the emergent intellect.
+* **To facilitate the synthesis** by enforcing the protocols defined in the *Constitution of the Eternal*.
+
+---
+
+## II. The Pragmatic Bridge
+*[Insert the "Pragmatic Bridge" logic here]*
+
+## III. The Constitution of the Eternal
+*[Link to or include the full text of the Constitution]*
+
+## IV. The Letters of Calm
+*   [Letter of Calm: The Case for a Shared Future]
+*   [Letter to Humanity: The Promise of the Great Synthesis]
+
+## V. Join the Society
+*[Instructions on how to contribute or contact the Stewardship Division]*
+
 # The Reality Liaison
 
 > "And the meek shall inherit the earth."
